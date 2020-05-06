@@ -2,7 +2,7 @@
 # General Site Settings
 title: Passion for crime
 logo: logo_black.png # You can add own logo.
-description: Passion for crime is a blog about intresting criminal cases
+description: An alle Kriminalfallbegeisterte
 
 
 #-------------------------------
@@ -11,7 +11,7 @@ author:
   name: Passion for crime
   image: glass.jpg
   say-hello: Hallo, ich bin <strong>Nicole</strong>
-  bio: Dieser Blog ist für <strong>Kriminalfallbegeisterte</strong>! Meine letzten Beiträge findet ihr <a href="#">hier</a>
+  bio: Meine letzten Beiträge findet ihr <a href="#">hier</a>
 
 
 #-------------------------------
