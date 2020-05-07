@@ -3,7 +3,7 @@ layout: post
 title:  Die vergitterte Welt - von Jana Frey
 date:   2020-05-07 20:00:00 +0100
 image:  barbed-wire.jpg
-tags:   gefängnis
+tags:   gefängnis jugend 
 ---
 Jugendlicher Leichtsinn und Grenzen austesten. Kernbestandteile des Aufwachsens. Warum bleibt es
 bei manchen dabei und bei anderen Endet es beim Anfang einer Kriminellen Meister Laufbahn.
