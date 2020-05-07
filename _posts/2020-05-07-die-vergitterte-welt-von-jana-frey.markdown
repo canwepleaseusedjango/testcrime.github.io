@@ -1,0 +1,245 @@
+---
+layout: post
+title:  Die vergitterte Welt - von Jana Frey
+date:   2020-05-07 20:00:00 +0100
+image:  barbed-wire.jpg
+tags:   gefängnis
+---
+Jugendlicher Leichtsinn und Grenzen austesten. Kernbestandteile des Aufwachsens. Warum bleibt es
+bei manchen dabei und bei anderen Endet es beim Anfang einer Kriminellen Meister Laufbahn.
+
+Wodurch wird ein Mensch zum Mörder? Wodurch wird er kriminell? Wie wird jemand
+kleinkriminell? Welche Straftaten sind bloßer jugendlicher Leichtsinn und Grenzen austesten? Wann
+überschreitet ein Jugendlicher die Schwelle von jugendlichem Leichtsinn und Grenzen austesten zu
+
+Fragen über Fragen, die ich mir schon häufig gestellt habe, wenn ich mich mit wahren Verbrechen
+befasst habe und so bin ich auf ein Buch über die wahre Geschichte eines jungen Mannes aus
+Deutschland gestoßen, der bereits mit 16 Jahren im Jugendgefängnis war. Alle Namen wurden von
+der Redaktion des Buches geändert.
+
+# Im Gefängnis
+Die Wände scheinen immer näher zu rücken, schlafen kann Juli gar nicht mehr, höchstens ein paar
+Minuten am Stück. Das Leben in der Jugendvollzugsanstalt ist kein Kinderspiel für den Jungen,der
+gerade 16 Jahre alt geworden ist. Jeder muss schauen, wie er hier alleine zurechtkommt. Als Juli hier
+ankam, lauerte man ihm auf, schlug ihn einige Male zusammen, verunstaltete sein Zelle, urinierte auf
+sein Bett. Immer wieder hörte er, er sei schwul oder ein Rassist. Ständig. Auf jede erdenkliche Weise
+wurde er gedemütigt. Das wenige Eigentum, wenn man es so nennen kann, das er besaß, warnie
+sicher und musste gut versteckt werden. Doch Juli hatte kaum Eigentum. Er wurde nicht so oft
+besucht wie die meisten Insassen hier und bekam von niemandem Fernseher, Bücher oder sonstiges
+Unterhaltungsmaterial. Unter seinem Bett lagen lediglich ein Buch, welches er von seinem
+Jugendamtbetreuer kurz vor seinem Prozess zum Geburtstag bekommen hatte, und ein Notizbuch, in
+das er seine Gedichte schrieb. Seine Gedanken kreisten meist nur um Mia, Wladimir und Frau Schiller
+# Julis frühsten Erinerrungen
+Ein Kind braucht liebende Eltern, Zuneigung, ein sicheres Heim, möchte spielen und seinen
+Interessen nachgehen. Auch Juli sehnte sich nach all dem. Er wohnte in einer kleinen, nach Rauch
+stinkenden Wohnung zusammen mit seiner Mutter in ärmlichen Verhältnissen. Seine Mutter trank
+unheimlich viel und lag den ganzen Tag zusammen mit ihren Katzen vor dem Fernseher und aß
+Pralinen oder schlief. Die Katzen brachten Juli immerzu zum Niesen und weinen, da er allergisch war,
+aber das interessierte die Mutter, Nanni genannt, nicht. Seine kleine Halbschwester lebte ihre ersten
+Jahre auch noch bei ihnen, hielt allerdings weder die Mutter noch den Stiefvater, der sie, wenn sie
+mal zu viel quengelte, schlug, aus und zog deshalb schon bald zu ihrem Vater und ließ einige Jahre
+nicht von sich hören.
+
+Den Stiefvater, Adam, lernte Juli zufällig vor der Wohnanlage in der erlebte kennen und von dem Tag
+an war Adam ein Teil ihrer Familie und Nanni und er wurden ein Paar. Adam war ein Held für Juli. Sie
+unternahmen viel, waren zusammen in der Natur, gärtnerten fleißig am Balkon und gingen
+zusammen in Museen. Er war für Juli der Vater, den er sich immer gewünscht hatte,und Juli der
+Sohn, den Adam nie gehabt hatte.
+
+Für Julis Schwester hatte er, wie oben beschrieben , weniger Interesse oder Geduld. Sie war
+allerdings nicht die einzige, die von seinen Aggressionen Schaden davon trug, auch Nanni wurden
+einige Schläge verpasst, so wie von jedem ihrer Partner zuvor auch. Für Juli war das nicht schlimm,
+dachte er zunächst. Immerhin war Adam der einzige Mensch, der für ihn da war. Er konnte nicht böse
+sein. Das passte nicht in seine Welt. Er liebte Adam und freute sich immer wahnsinnig, wenn Adam
+aus Paris zurückkam. Er liebte Paris und verbrachte dort immer wieder mal ein paar Monate und
+erzählte atemberaubende Geschichten seiner Abenteuer dort. Dies stellte sich allerdings als eine
+weitere Enttäuschung in Julis Leben heraus. Er war schon mitten in der Pubertät, als er erfuhr, dass
+sein Held und Vater regelmäßig ins Gefängnis musste und ihn seither angelogen hat. Wut und Frust
+entwickelten sich allmählich in ihm. Nichts konnte einfach nur normal sein.
+
+Als Adam wieder einmal aus „Paris“ kam, wurde er wütend, brüllte um sich, schlug auf die Mutter
+ein. Schimpfte den damals noch sehr jungen Juli. Alles egal. Adam war wieder da, und das machte ihn
+glücklich. Am Abend dann lauschte er einem Gespräch seiner Eltern. „Ich will ein Kind haben, einen
+Sohn“, bat Adam. Doch die Mutter, Nanni, wollte nicht. Wütend packte Adam sie und drängte sie ins
+Schlafzimmer. Sie ließen die Tür zum Wohnzimmer offen stehen und ihr kleiner Sohn konnte alles
+mitanhören.
+
+In der Schule war Juli nicht der beste, von Mathe und Deutsch verstand er gar nichts. In Biologie
+hingegen war er klasse. Alles was sie in Biologie lernten, hatte er schon von Adam erfahren. Seine
+Klassenlehrerin wusste davon aber nichts, weil er sich nie meldete. Er war immer sehr müde, weil es
+zu Hause immer sehr spät wurde, bis er schlafen konnte. Oft schwänzte er die Schule. Freunde hatte
+Juli eine lange Zeit nicht und wurde aufgrund seiner Familienverhältnisse gemobbt.
+
+# Fehler machen wir doch alle wenn wir jung sind
+All diese Umstände machten den kleinen, liebenswerten, von der Welt begeisterten und nach Wissen
+strebenden Jungen immer frustrierter und wütender. Immerzu wurde er enttäuscht, schlecht
+behandelt und verlassen. Er war bereits 14 Jahre alt, als er wieder mal in der Schule leiden musste,
+seine Wut aber nicht beherrschen konnte. Er wurde geschimpft und beleidigt und spürte nur wie sich
+seine Fäuste ballten, er nur noch rot sah und ihm heißer Schweiß den Rücken herunterlief. Die Wut
+hatte ihn im Griff. Er wollte, dass das aufhört und schlug seinen Mitschüler so fest auf die Nase, dass
+sie gebrochen war. Vom Jugendrichter wurde er dafür zu 20 h Arbeit in einem Tierheim verurteilt.
+Diese Strafe stellte sich allerdings als etwas Gutes heraus. Er war gerne dort, und liebte es mit den
+Hunden spazieren zu gehen. Was ihm allerdings mehr zu Schaffen machte, war die Tatsache, dass er
+im kommenden Schuljahr auf eine Sonderschule wechseln musste, da er nie in der Schule anwesend
+war und keine Leistungen erbrachte.
+
+Etwa zur gleichen Zeit lernte Juli Noah, seinen allerersten Freund, kennen. Noah war in seinem Alter,
+hatte auch ein ähnlich schweres Leben und hörte ihm zu. Zusammen wurden sie ein Team. Sie
+tranken viel Alkohol, rauchten und kifften viel und begannen alte, wehrlose Menschen nach dem
+Kirchengang zu bestehlen. Zum ersten Mal in Julis Leben hatte er Geld. Konnte sich eine Playstation,
+ein Mountainbike und coole Kleidung leisten.
+
+Kurz vor Julis 15 Geburtstag sollte er Adam das letzte Mal sehen. Die Polizei weckte die Familie früh
+morgens aus dem Schlaf und nahm Adam fest und stellte eine Menge an illegaler Waren sicher. Noch
+vor Adams Prozess starb er, einfach so, Juli erfuhr nie woran. Spätestens jetzt war Juli nicht mehr
+aufzuhalten. Keine Perspektiven, keine Bezugsperson, kein Glück. Seine Mutter blieb nicht lange
+alleine und fand das erste Mal einen Mann der sie nicht schlug, dafür hatte sie jetzt einen
+gewalttätigen Sohn zu Hause, der dies übernahm.
+
+Schließlich passierte was passieren musste. Ein weiterer Taschendiebstahl. Doch diesmal kam er im
+Gegensatz zu Noah nicht ungeschoren davon. Zwei Arbeiter auf der Straße sahen das Geschehnis mit
+an, packten Juli und brachten ihn zur Polizei. Dort erwarteten ihn noch weitere Jungen, die allesamt
+Baseballcaps trugen, genau wie Juli und Noah sie immer bei solchen Taten trugen. Er stellte sich mit
+den jungen Männern in einer Reihe auf und schaute auf eine dunkle Glaswand. Hinter dieser Wand
+standen Opfer, die Juli identifizierten. Elf Anklagen hatte er somit am Hals und eine Mutter, die ihn zu
+Hause nicht mehr willkommen hieß. Seine Mutter schob ihn ab, das war alles, woran er denken
+konnte. Er war zutiefst verletzt. Von nun an lebte er in einem schäbigen und stinkenden Heim.
+Überall dröhnte die Musik und stank es nach Zigarettenqualm. Sein Zimmer teilte er sich mit Lino und
+konnte nachts nicht schlafen, weil es viel zu stickig und heiß in dem Raum war. Lino sprach kein Wort
+mit ihm und verbreitete in seiner neuen Klasse in der Sonderschule, in die Lino auch ging, lauter
+Gerüchte über den Neuen. Mit der Zeit freundeten sich die beiden aber doch an, und Lino wurde
+zum neuen Noah. Zusammen tranken und rauchten sie viel und stellten auch nach der Reihe Dinge
+an.
+
+An einem betrunkenen Abend trafen die beiden Adams Nichte, Annabell, in einem Jugendclub. Sie
+war etwas jünger als die Jungen und zusammen waren die drei im dunklen Keller des Jugendclubs.
+Juli legte seine Arme um Annabells Hüfte und zog sie an sich. Er war gut drauf und genoss die Nähe.
+Auf keinen Fall wollte er sie gehen lassen, es war viel zu schön. Plötzlich geht das Licht an und Juli
+wurde von einem großen Mann gepackt und gegen die Wand gepresst. Diesmal gab er nicht
+kampflos auf, wie bei der Sache mit dem Taschendiebstahl und versuch zu entkommen und das
+erfolgreich. Am nächsten Morgen stand schon die Polizei vor seiner Tür. Tomas und Josefa, die Eltern
+von Annabell, die Familie von Adam, hatten ihn angezeigt. Früher verbrachte er viel Zeit bei ihnen,
+hatte sie richtig gerne. Jetzt sah die Sache anders aus.
+
+Für vier Wochen musste Juli in eine Jugendarrestanstalt. Ein Braunes Backsteinhaus, das freundlicher
+aussah als das Heim. Hier herrschten strenge Regeln und Vorgaben. Der ganze Tag ist durchgeplant
+und die Freizeit eng bemessen. Juli fand es hier aber gar nicht schlecht. Es war besser, als mit seiner
+Mutter in der Wohnung und besser als im Heim, das nach Zigarettenqualm roch. Und er fand dort
+Mohammed.,einen ausländischen Jungen, mit dem er sich von Anfang an gut verstand. „Warum bist
+du hier?“, fragte Mohammed. Zum ersten Mal wurde Juli bewusst, dass er versucht hatte, ein
+Mädchen zu vergewaltigen. Ihm wurde ganz komisch. Es war nie seine Absicht, ihr weh zu tun. Die
+Nähe zu ihr fühlte sich einfach zu gut an. Aber Mohammed tischte er eine Lüge auf. Die Freundschaft
+wurde viel intensiver als die mit Noah oder Lino. Ihn hatte er richtig gerne. Doch nach nur 3 Wochen
+wurde Mohammed verlegt, in einen besser beaufsichtigten Trakt, weil er depressiv war und man sich
+Sorgen machte, er könnte sich selbst etwas antun. Mit Mohammed verließ ihn wieder sein Glück, ein
+Mensch dem er vertrauen konnte und bei dem er sich wohlfühlte.
+
+„Du hast dich prima gehalten dort drin, habe ich gehört. Der Anstaltsleiter hat es ausdrücklich betont
+und einen ausführlichen Bericht geschrieben. Du warst freundlich und kooperativ und hast fleißig im
+Außengelände gearbeitet“, freudig holte der Jugendamtbetreuer Juli von der Jugenarrestanstalt ab.
+Juli hörte nicht direkt hin. Er wollte einfach nur nach Hause. Zu seiner Mutter, nicht in diese WG. Und
+so sollte es auch kommen. Die nächsten Wochen versuchte Juli, ruhig zu bleiben und nicht
+aufzufallen. Beschäftigte sich, versuchte wenig zu trinken, hielt Kontakt mit Mohammed, mied Lino
+und war häufig in der Schule.
+
+# Und plötzlich war da Mia
+Sie war die Pfarrerstochter der Kirche in der Nähe. Er hatte sie schon ein zweimal gesehen und kurz
+mit ihr geredet, doch an einem Tag traf er sie wieder und diese Begegnung trennte sein Leben in zwei
+Welten. Die kaputte, arme Welt, mit der Sonderschule, seiner unliebsamen Mutter mit ihrem Freund
+Per-Olaf, den Katzen und all den Problemen rundherum, auf der einen Seite und die andere Welt war
+die mit Mia. In dieser Welt war er lustig und zufrieden, spielte gerne Tischtennis mit Mia und
+verbrachte gerne Zeit mit ihrer Familie. Mias Welt war perfekt. Sie spielte Harfe, war in einer
+Theatergruppe, besuchte BewohnerInnen des Altenheims und ging aufs Gymnasium. Am liebsten
+wollte er sein altes Leben abschütteln. Er hasste sein eigenes Leben. Niemand interessierte sich für
+ihn. Jeder nörgelte nur herum. Keiner konnte ihn leiden oder war für ihn da, seitdem Adam weg war.
+Mias Eltern hatten großes Interesse für ihn und erkundigten sich regelmäßig nach seinem
+Wohlbefinden und wollten mehr über ihn erfahren. Mia schätzte ihn. Mia zeigte ihm, was er immer
+wollte: eine Familie und geliebt zu werden.
+
+Allerdings wusste Mia nicht über Julis eigentliches Leben. Immer wieder nahm er sich vor ihr die
+Wahrheit zu sagen, doch folgendes Gespräch war wieder mal der Beginn einer tiefen Enttäuschung
+des gerade mal 15 jährigen Jungen. In Mias Küche hing ein Bild eines kleinen abgemagerten
+Mädchens. Mia erzählte ihm, sie sei das Mädchen darauf. Sie war 2 Jahre alt und lebte in einem
+Kinderheim in Rumänien. Die Armut in diesem Land ist sehr groß und Mia hatte viel Glück von ihrer
+Familie adoptiert zu werden. „ Ich weiß, es klingt blöd, aber ich will mit Armut und Elend nichts mehr
+zu tun haben. Ich bin froh, dass in meinem Leben jetzt alles heil und in Ordnung ist, verstehst du?“
+Der Satz traf Juli wie ein Stich in sein Herz. Er lebte in Armut und war voller Probleme. Er konnte ihr
+nicht die Wahrheit erzählen, er schaffte es nicht, noch einen Menschen zu verlieren.
+
+Doch das Verheimlichen war schwer. Bei ihrem ersten Kuss unterbrach sie ein alter Schulkamerade
+von Juli, Wladimir, der Mia auch kannte und posaunte heraus, was für ein schlechter Umgang er für
+sie war. Mia reagierte abfällig auf diesen Jungen und sagte Dinge, die sie an ihm störten. Doch in
+Wahrheit stimmten diese Worte auch für Juli, nur wusste sie das noch nicht. Der Schulkollege,
+Wladimir, hatte große Lust, Mia alles zu erzählen. Er wusste, die Wahrheit über Juli würde ihr sicher
+nicht gefallen. Er drohte Juli damit bei einem Treffen und in Juli stieg die Wut. Er war außer sich. Er
+wollte Mia nicht verlieren. Er ballte wieder mal seine Fäuste, versuchte sich zu beherrschen, doch
+sein Gegenüber machte immer weiter, und Julis Frust überstieg schließlich seine Macht, sich zu
+kontrollieren. Und dann geschah es. Er schlug auf ihn ein, immer wieder bis er umfiel. Julis Hände
+waren voller Blut. Er rannte weg. Irrte in der Gegend rum. Immer weiter, bis er wieder da war, wo er
+losgelaufen war. 2 Polizisten bauten sich vor ihm auf und entwaffneten ihn. Entwaffnen? Jetzt erst
+realisierte er, was passiert war. Er hatte seinen ehemaligen Klassenkameraden niedergestochen.
+
+# Gibt es einen Weg zurück?
+Wochen verstrichen, sein 16. Geburtstag ging vorüber, Wladimir hatte sich fast zur Gänze erholt, der
+Prozess ging vorüber, 1 Jahr Jugendgefängnis waren seine Strafe, seine Mutter stellte sich vor
+Gericht auf seine Seite, aber all das war unbedeutend. Er rief Mia nicht an, hörte auch nichts von ihr.
+Alles zwischen ihnen war zerstört. Ihr einziges Lebenszeichen war ihre Aussage vor Gericht
+ausgesagt: “Ich glaube er wollte nicht, dass ich erfahre wie er lebt…. Und er hatte Angst, glaube ich,
+dass Wladimir mir das alles sagen würde“
+
+Nun war er hier. In Paris. Adams Paris. Er hockte ganz alleine in seiner Zelle. Das Leben hier ähnelte
+dem in der Jugendarrestanstalt. Sein Zufluchtsort war das Büro von Frau Schiller, die
+Wohngruppenleiterin. Er war gerne dort, sie nahm ihn offenbar ernst und sah in ihm den netten,
+liebenswerten und jungen Mann, der er eigentlich war. Zum Geburtstag, kurz vor Beginn seines
+Prozesses, bekam er ein Buch von seinem Jugendamtbetreuer. „Der Steppenwolf“. Er hasste lesen,
+in der Zelle entschied er sich jedoch dafür. Es gefiel ihm und inspirierte ihn dazu Gedichte zu
+schreiben.
+
+Anders als in der JAA ging es ihm im Gefängnis miserabel. Die Bedingungen waren schlechter, die
+Mitinsassen gemeiner und seine Welt draußen kaputter. Er arbeitete in der Gefängniswäscherei. Dort
+hatte er Glasscherben gefunden. Diese nahm er und ritzte sich die Pulsadern auf. Friedlich schlief er
+ein.
+
+Auf der Krankenstation wachte er wieder auf. Tagelang tat er kaum etwas, außer zu schlafen. Sprach
+nicht. Immer wieder besuchten ihn der Psychologe, Ärzte und auch Frau Schiller. Doch an einem Tag
+kam Rufus,der Mitinsasse, der die täglichen Erniedrigungen und Schlägereien voran trieb. Er war
+mitschuldig, weshalb Juli nun hier lag. Juli wollte einfach nur, dass er verschwand. „Ich habe ein
+bisschen in deiner Zelle rumgewühlt und da habe ich dieses kleine Buch gefunden… merkwürdigen
+Kram schreibst du da auf. Zuerst dachte ich, wow, das ist was für die anderen… doch dann….
+Irgendwie hat mir das, was du da hingekritzelt hast, gefallen“, stieß er kleinlaut heraus und ging
+wieder zurück in seine Zelle. Als Juli wieder in seine Zelle kam, war das Buch noch da. Aus ihnen
+wurde, naja, Freunde kann man es nicht nennen, aber sie verbrachten nun öfter Zeit miteinander.
+
+Es vergingen einige Wochen bis Monate, bis Nanni ihren Sohn besuchte. Sie machte eine Therapie
+wegen ihres Alkoholkonsums und ihrer Depression. Sie war vermutlich schwanger und eine Hochzeit
+mit Per-Olaf stand vor der Tür, für die er sogar Hafturlaub bekam. Juli wusste nicht mehr wo oben
+und unten ist. Sie hatten ein gutes Gespräch. Sie meinte, dass er ein guter Sohn sei. Er wollte weinen.
+
+Seine Zeit im Gefängnis war gezeichnet von Wutanfällen und Gedanken an Mia. Immer wieder
+versuchte er, sie zu erreichen. Fragte sie um Rat für sein späteres Leben, schickte ihr Gedichte und
+rief sie auch einmal an. Nie kam eine Antwort. Dafür erkundigte sich sein Freund Mohammed, der
+einzige der an ihn da draußen dachte. Drinnen war er nur in Schlägereien verwickelt, musste Strafen
+absitzen und stellte zusammen mit Rufus Blödsinn an.
+
+Doch mit der Zeit wirkte die Strafe auf Juli. Er erkannte, dass er ein guter Mensch war und nie Böses
+gewollt hatte. Ihm war zu viel schlechtes widerfahren und darüber zerbrach er sich immer mehr den
+Kopf. Er dachte nach über Wladimir, über seine Familie und darüber, dass Adam gar kein Held war,
+sondern seiner Familie wehgetan hatte. Er dachte über all seine eigenen schlechten Taten nach und
+ergriff den Entschluss: Er wollte das ganze nicht mehr. Anders als die meisten anderen hier wollte er
+sein Leben auf die Reihe bekommen, wollte einen Beruf erlernen und nie wieder hierher
+zurückkommen. Er liebte Tiere und gärtnerte früher mit Adam gerne. Das könnte sein Grund sein um
+sich hier wieder raus zu kämpfen, dachte er. Er schloss auch innerlich Frieden mit seiner Familie und
+gestand sich ein, dass er seine Mutter liebte.
+
+Und plötzlich war da Mia. Sie kam zu Besuch, fielen sich in die Arme und alles war zwischen ihnen
+wie vorher. Sie war ihm nicht böse. Sie brauchte nur Zeit um über alles nachzudenken, aber jetzt war
+sie überglücklich wieder bei Juli zu sein.
+
+Einige Monate später wurde Juli entlassen. Mit seiner Familie hatte er guten Kontakt, lebte aber
+wieder im Heim. In der Schule geht es bei Juli bergauf und mit Mia läuft es auch super. Sein hartes
+Leben scheint ins gute zu steuern.
+
+Eine vielzahl der Verbrecher hat eine schlechte Vergangenheit. Oft entstehen diese Probleme in der
+Kindheit, viele erleben schlimme Traumatas, viele, wie auch Juli, sind eigentlich gute Menschen… Ich
+finde es interessant und wichtig, dass man auch einmal hinter die Kulissen eines Verbrechens schaut.
+Ein Verbrecher ist nicht gleich ein schlechter Mensch. Jeder von uns hätte an Julis Stelle sein können.
