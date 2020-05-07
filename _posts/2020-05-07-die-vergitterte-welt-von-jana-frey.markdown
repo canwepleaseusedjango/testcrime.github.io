@@ -231,15 +231,4 @@ zurückkommen. Er liebte Tiere und gärtnerte früher mit Adam gerne. Das könnt
 sich hier wieder raus zu kämpfen, dachte er. Er schloss auch innerlich Frieden mit seiner Familie und
 gestand sich ein, dass er seine Mutter liebte.
 
-Und plötzlich war da Mia. Sie kam zu Besuch, fielen sich in die Arme und alles war zwischen ihnen
-wie vorher. Sie war ihm nicht böse. Sie brauchte nur Zeit um über alles nachzudenken, aber jetzt war
-sie überglücklich wieder bei Juli zu sein.
-
-Einige Monate später wurde Juli entlassen. Mit seiner Familie hatte er guten Kontakt, lebte aber
-wieder im Heim. In der Schule geht es bei Juli bergauf und mit Mia läuft es auch super. Sein hartes
-Leben scheint ins gute zu steuern.
-
-Eine vielzahl der Verbrecher hat eine schlechte Vergangenheit. Oft entstehen diese Probleme in der
-Kindheit, viele erleben schlimme Traumatas, viele, wie auch Juli, sind eigentlich gute Menschen… Ich
-finde es interessant und wichtig, dass man auch einmal hinter die Kulissen eines Verbrechens schaut.
-Ein Verbrecher ist nicht gleich ein schlechter Mensch. Jeder von uns hätte an Julis Stelle sein können.
+Unerwartet kam Mia Juli besuchen.  Das war das letzte, womit er rechnete. Mia war ihm kein bisschen böse, sie brauchte nur Zeit alles zu verarbeiten. Sie hatte ihn sehr vermisst und war genauso glücklich Juli wieder in den Arm schließen zu können wie umgekehrt. Juli wurde einige Monate später aus dem Gefängnis entlassen. Zu seiner Familie pflegte er guten Kontakt, lebte jedoch weiterhin im Heim. Seine schulischen Leistungen verbesserten sich. Sein Verhältnis zu Mia war besser denn je. Es scheint als habe er sein hartes Leben zurückgelassen.
